@@ -1,4 +1,4 @@
-Hello. My name is Mustafa Talha Sezginal. I'm currently an undergraduate 20 years old  "Math and Computer Science" student at Istanbul Kultur University.Nowadays im improving myself on Python and also trying to learn some new languages and step into new fields! If you want to contact me here are my Instagram and LinkedIn connections:                                     
+Hello. My name is Mustafa Talha Sezginal. I'm currently an undergraduate 21 years old  "Math and Computer Science" student at Istanbul Kultur University.Nowadays im improving myself on Python and also trying to learn some new languages and step into new fields! If you want to contact me here are my Instagram and LinkedIn connections:                                     
 https://www.instagram.com/talhasezginal/ 
 https://www.linkedin.com/in/mustafa-talha-sezginal-1561a4262/
 
