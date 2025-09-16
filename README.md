@@ -1,4 +1,4 @@
-Hello, my name is Talha Sezginal. I'm a 21 years old  Mathematics and Computer Science  undergraduate at İstanbul Kültür University. I'm working on improving myself on both life and tech-vise. If you want to contact me here is LinkedIn connection: https://www.linkedin.com/in/talha-sezginal-a64459341/                                     
+Hello, my name is Talha Sezginal. I'm a 22 years old  Mathematics and Computer Science  undergraduate at İstanbul Kültür University. I'm working on improving myself on both life and tech-vise. If you want to contact me here is my LinkedIn connection: https://www.linkedin.com/in/talha-sezginal-a64459341/                                     
 
 
 <!--
